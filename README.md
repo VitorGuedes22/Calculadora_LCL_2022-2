@@ -1,0 +1,1 @@
+# Calculadora_LCL_2022-2
